@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PamelaNichols
-- 👀 I’m interested in real Estate, and helping families abtain housing. 
+- 👀 I’m interested in real Estate, and helping families obtain housing. 
 - 🌱 I’m currently learning LD/ EBD CLassrom. 
 - 💞️ I’m looking to collaborate on all levels with my colleauges. 
 - 📫 How to reach me would be best by e-mail. pamela.nichols@clayton.k12.ga.us
